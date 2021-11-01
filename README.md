@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @KTB1991tb
-- 👀 I’m interested in discussions with people top of their game interested in working in the UK
-- 🌱 I’m looking to collaborate with those seeking contracting career opportunities in the UK
-- 💞️ 
-- 📫 How to reach me ... via email address Trish@endo.uk.com
+Hi, I’m @KTB1991tb
+Headhunter for Endo UK, looking for people at the top of their game, interested in living/working in the UK as consulting contractors.
+Sponsorhip visa considered for suitable candidates.
+How to reach me ... via email address Trish@endo.uk.com
 
 
